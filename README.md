@@ -1,2 +1,0 @@
-# paras-ghangash
-JAI MAHAKAL
